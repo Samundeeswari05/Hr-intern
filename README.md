@@ -1,2 +1,2 @@
 # Hr-intern
-Top tech developers 
+Top Techech developers 
